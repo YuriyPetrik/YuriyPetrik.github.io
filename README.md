@@ -1,1 +1,1 @@
-# YuriyPetrik_Ham.github.io
+# YuriyPetrik.github.io
